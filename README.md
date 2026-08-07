@@ -1,5 +1,5 @@
 ![image alt](https://github.com/HEDGYMAJIN/HEDGYMAJIN/blob/cec1351ec23ec9a5fac67ff17117c9c2410e61cb/purple-banner.gif)
-
+𝑯𝑰𝑰𝑰 𝑰𝑴 𝑯𝑬𝑫𝑮𝒀/𝑴𝑨𝑱𝑰𝑵 𝑰𝑴 𝑨 𝑴𝑨𝑱𝑰𝑵 𝑲𝑰𝑵 𝑨𝑵𝑫 𝑨 𝑳𝑶𝑹𝑫 𝑿 𝒀𝑼𝑴𝑬!!!
 <!--
 **HEDGYMAJIN/HEDGYMAJIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
