@@ -1,4 +1,4 @@
-    ![image alt](https://github.com/HEDGYMAJIN/HEDGYMAJIN/blob/cec1351ec23ec9a5fac67ff17117c9c2410e61cb/purple-banner.gif)
+![image alt](https://github.com/HEDGYMAJIN/HEDGYMAJIN/blob/cec1351ec23ec9a5fac67ff17117c9c2410e61cb/purple-banner.gif)
         ·:*¨༺ ♱✮♱ ༻¨*:·
        ✩°｡ ⋆⸜ 🎧𝑰𝑴 𝑴𝑨𝑱𝑰𝑵/𝑯𝑬𝑫𝑮𝒀
       ★📎 {} .. 𝑰 𝑮𝑶 𝑩𝒀 𝑯𝑬/𝑻𝑯𝑬𝒀/𝑴𝑨𝑱𝑰𝑵𝑺𝑬𝑳𝑭
