@@ -6,3 +6,4 @@
       ★‧₊˚ ☁️⋅𝑰𝑴 𝑮𝑨𝒀,𝑻𝑹𝑨𝑵𝑺,𝑨𝑵𝑫 𝑷𝑶𝑳𝒀
       ☆・．❕「𝑰𝑴 𝑨 𝑳𝑶𝑹𝑫 𝑿 𝒀𝑼𝑴𝑬 𝑨𝑵𝑫 𝑨 𝑴𝑨𝑱𝑰𝑵 𝑲𝑰𝑵」
          ·:*¨༺ ♱✮♱ ༻¨*:·
+![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535435506542842007/image-26.jpg?ex=6a77c13f&is=6a766fbf&hm=ec66332c21a2999c5eedf4fda7d9c2ddc47ac3a393bf44c01dec0ea988769607&)
