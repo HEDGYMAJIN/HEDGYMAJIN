@@ -1,4 +1,4 @@
-## Hi there 👋
+![image alt](https://github.com/HEDGYMAJIN/HEDGYMAJIN/blob/cec1351ec23ec9a5fac67ff17117c9c2410e61cb/purple-banner.gif)
 
 <!--
 **HEDGYMAJIN/HEDGYMAJIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
