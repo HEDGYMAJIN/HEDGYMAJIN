@@ -12,4 +12,3 @@
 ${\textsf{\color{#fbff8b}୨୧.}}$ @HEDGYMAJIN & @FATSTISM ${\textsf{\color{#F9FBF2}Num.1 Endlesscycles shippers!}}$
 <audio controls>
   <source src="https://github.com/HEDGYMAJIN/HEDGYMAJIN/raw/refs/heads/main/An_Eater_KLICKAUD.mp3" type="audio/mpeg">
-</audio>
