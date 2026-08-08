@@ -15,5 +15,9 @@
 ![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535466616840519774/ezgif-772e77e6fb91d27f.gif?ex=6a77de39&is=6a768cb9&hm=41539103b19e5e3556ff09f8dcb500f8a495fa21041fc6c56c01be7e09bc8661&)       
 ![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535435506542842007/image-26.jpg?ex=6a77c13f&is=6a766fbf&hm=ec66332c21a2999c5eedf4fda7d9c2ddc47ac3a393bf44c01dec0ea988769607&)
 
-${\textsf{\color{#fbff8b}୨୧.}}$ @HEDGYMAJIN & @FATSTISM ${\textsf{\color{#F9FBF2}Num.1 Endlesscycles shippers!}}$ ![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535464719866007552/ezgif-7dd5524c347acad3.gif?ex=6a77dc74&is=6a768af4&hm=2f2ced57de3ff4222741d7f2fc9f668868b909c164f703f7dfb0d7c0dff6d52c&)
+${\textsf{\color{#fbff8b}୨୧.}}$ @HEDGYMAJIN & @FATSTISM ${\textsf{\color{#F9FBF2}Num.1 Endlesscycles shippers!}}$ 
+
+${\textsf{\color{#b9ffbd}୨୧.}}$ @HEDGYMAJIN ${\textsf{\color{#F9FBF2}Num.1 Lordmajin shipper!}}$
+
+![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535464719866007552/ezgif-7dd5524c347acad3.gif?ex=6a77dc74&is=6a768af4&hm=2f2ced57de3ff4222741d7f2fc9f668868b909c164f703f7dfb0d7c0dff6d52c&)
 
