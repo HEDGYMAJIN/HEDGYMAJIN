@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=HEDGYMAJIN)
+
 ![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535453414895386756/lines-glitter-786776.gif?ex=6a77d1ed&is=6a76806d&hm=047fc5d33118d38e510f679bf0499d5731f39c1319f253595f7f41434cd1234b&)
 ᥫ᭡..∞ ![image alt](https://cdn.discordapp.com/attachments/1056407388275621899/1535461858197241959/ezgif-64ed05bd339b58bb.gif?ex=6a77d9ca&is=6a76884a&hm=ce9e20a8274cee88ca32f2c83ec8a2681e0ad6d0e724b33e1faee76a4e27e304&)
 
